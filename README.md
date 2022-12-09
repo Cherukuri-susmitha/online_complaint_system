@@ -35,6 +35,6 @@ CHERUKURI SUSMITHA
 
 ***instagram*** "https://www.instagram.com/ch.susmitha"
 
-***facebook*** "https://www.instagram.com/susmitha.ch.142"
+***facebook*** "https://www.facebook.com/susmitha.ch.142"
 
 ***LinkedIn*** "https://www.linked.com/in/cherukuri-susmitha-16bb42233/"
