@@ -37,4 +37,4 @@ CHERUKURI SUSMITHA
 
 ***facebook*** "https://www.facebook.com/susmitha.ch.142"
 
-***LinkedIn*** "https://www.linked.com/in/cherukuri-susmitha-16bb42233/"
+***LinkedIn*** "https://www.linkedin.com/in/cherukuri-susmitha-16bb42233/"
